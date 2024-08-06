@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @meowstushka
-- 👀 I’m interested in painting, music and mapping in Space Station 14
+- 👀 I’m interested in painting, metal and rock music and mapping in Space Station 14
 - 🌱 I’m currently learning painting.
 - 💞️ I’m looking to collaborate on metal group.
 - 📫 How to reach me Discord: meowstushka
