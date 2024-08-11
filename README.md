@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on metal group.
 - 📫 How to reach me Discord: meowstushka
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love furry.
+- ⚡ Fun fact: I love one little sweetie fox.
 
 <!---
 meowstushka/meowstushka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
